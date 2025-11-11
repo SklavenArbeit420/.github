@@ -1,4 +1,4 @@
-# ⛓️ Sklaven Arbeit 420 ⛓️
+# ⛓️ Sklaven Arbeit 420 ⛓️ - ❤️🇨🇭 Sponsored by Switzerland 🇨🇭❤️
 
 ![rcGmyOu](https://github.com/user-attachments/assets/ef34ab05-3875-444e-834a-a341e51b1bdf)
 

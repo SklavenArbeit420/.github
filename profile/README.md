@@ -21,6 +21,8 @@ Ja wir machen ALLES für geld
 | **Jakub** | Smoken |
 | **SirKnubble** | Grafiken |
 
+![512959317-d1223aef-e8f5-43e2-8961-1531addc345d-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/8e123fec-e240-4856-bb01-6b2fbfc09e45)
+
 
 ---
 
@@ -51,6 +53,4 @@ Ja wir machen ALLES für geld
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/cfc63a6b-445c-43cf-a72e-bc1ec4a53470" />
 
 Wieso bist du noch da?
-
-
-![512959317-d1223aef-e8f5-43e2-8961-1531addc345d-ezgif com-video-to-gif-converter](https://github.com/user-attachments/assets/8e123fec-e240-4856-bb01-6b2fbfc09e45)
+<img width="3333" height="1875" alt="image" src="https://github.com/user-attachments/assets/c5bffb3c-1294-4652-94ac-49626df71142" />

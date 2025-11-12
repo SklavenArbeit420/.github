@@ -13,7 +13,7 @@ Ja wir machen ALLES für geld
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/503366b7-e50e-4bca-919a-51d778779910" />
 <img width="500" height="496" alt="image" src="https://github.com/user-attachments/assets/d00a0ff8-088c-464a-8f1c-109578830a90" />
 
-## 👨🏿‍🌾 Die Arbeiter
+## ❤️🇨🇭 Die Arbeiter
 
 | Name  |  Spezialgebiet |
 |-------|----------------|
